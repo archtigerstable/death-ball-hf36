@@ -1,4 +1,4 @@
-
+Experience death ball like never before with smart death ball Script, the #1 Script. Includes auto-upgrade and instant win for unbeatable performance.
 
 
 
